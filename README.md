@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yasmineatoui
 - 👀 I’m interested in design
-- 🌱 I’m currently learning product management
+- 🌱 I’m currently a product Manager 
 - 💞️ I’m looking to collaborate on AI for dermocosmetic product 
 - 📫 How to reach me yasatoui@gmail.com
 
